@@ -31,7 +31,7 @@ Key concepts include:
 
 ## 📜 Certificate
 
-You can view my course completion certificate [here](https://coursera.org/share/your-certificate-link-here)
+You can view my course completion certificate [here](https://coursera.org/share/90219120efde894704f903effd775bbd)
 
 ---
 
